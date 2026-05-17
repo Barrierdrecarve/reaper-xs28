@@ -1,4 +1,4 @@
-# 
+# Último DaVinci Resolve para PC ejecutor es el mejor DaVinci Resolve para PC ejecutor con búfer de repetición y gradación de color. Seguro, confiable y optimizado para el máximo
 
 
 
